@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @BAzIK The Helping Hand 😄✌️
+- 👋 Hi, I’m @BAzIK 
 - 🥺 I’m interested in nothing :(
 - 🤓 I’m currently learning cybersecurity
 
